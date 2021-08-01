@@ -1,0 +1,1 @@
+# Bolnicki-magacin
